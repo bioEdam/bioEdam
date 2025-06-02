@@ -3,4 +3,4 @@
 - 📫 How to reach me:
   - adamcandrak@gmail.com
   - instagram: @\_\_adamis\_
-- ⚡ Some of my interests are: Formula 1 🏎️, Super Smash Brothers 🎮 and Concept albums 🎧🎶
+- ⚡ Some of my interests are: Formula 1 🏎️, Video Games 🎮 and Concept albums 🎧🎶
